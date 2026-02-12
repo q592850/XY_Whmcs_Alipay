@@ -1,5 +1,5 @@
 ## 轩辕云官网
-[https://[[www.]()](http://www.globaliepl.com/)](https://www.globaliepl.com/)
+https://www.globaliepl.com
 主营：IPLC广港，IPLC沪港，IPLC沪日，IPLC沪美，深港IEPL，沪日IEPL，广州大带宽，深圳大带宽，江苏大带宽，深圳大带宽，温州建站VPS等等
 TG交流群:https://t.me/cn_iepl
 
